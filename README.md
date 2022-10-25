@@ -49,3 +49,4 @@ To dla wszystkich żołnierzy co zmarli
 Goniąc za marzeniem i odeszli za wcześnie
 Nie będę krzywdził mi bliskich za skarby
 Ich nigdzie nie wezmę - nie będę żył wiecznie
+d-_-b
